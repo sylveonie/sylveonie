@@ -4,8 +4,27 @@
 
 `  "Look, girls! A broken stem on one of the zinnias!  `
 
+<sub> 𐙚 spam follow acc
+♡ block if unwanted
+♡ following ≠ endorsement </sub>
 
-<sub> . spam account , BLOCK if unwanted , i dont check accounts . 
+<details>
+<summary>♡ about my follows</summary>
 
-<sub> . simply PM me thru @meowdoku if I follow someone negative . </sub>
+i don't necessarily agree with or support everything posted by the people i follow.
 
+</details>
+
+<details>
+<summary>♡ concerns / issues</summary>
+
+dm me if someone i follow is problematic, cancelled, or involved in something concerning. i may not be aware of everything.
+
+</details>
+
+<details>
+<summary>♡ boundaries</summary>
+
+please communicate respectfully. i'm open to being informed and corrected, but i won't entertain unnecessary drama.
+
+</details>
